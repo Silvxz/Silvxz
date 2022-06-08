@@ -11,6 +11,8 @@
 -músicas🎶
 
 - ## atualmente estou aprendendo:
+- outras linguas
+- 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 
